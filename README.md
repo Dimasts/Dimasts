@@ -1,5 +1,7 @@
 - 👋 Hi, I’m @Dimasts
-- 👀 I’m interested in ...
+- 👨‍💼 Age 18 Y.O
+- 🧡 Owner tambak lele
+- 🌎 I'm From Jawa Selatan rodo tengah sitik
 
 
 
