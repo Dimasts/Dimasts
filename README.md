@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Dimas ts
 - 👨‍💼 Age 18 Y.O
-- 🧡 Owner tambak lele
-- 🌎 I'm From Jawa Selatan rodo tengah sitik
+- 🧡 Owner tambak cutung
+- 🌎 I'm From Pemalang,Jawa Tengah.
 
 
 
